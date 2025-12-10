@@ -44,7 +44,7 @@ Models and studies related to the energy and infrastructure sectors.
 ---
 
 ## 📫 Contact  
-**LinkedIn:** https://www.linkedin.com/in/gabrielrochas/  
-**Email:** (adicione seu melhor e-mail)  
+**LinkedIn:** [https://www.linkedin.com/in/gabrielrochas/  ](https://www.linkedin.com/in/gabriel-rocha-cnpi-g-cfg-a6634b206/)
+**Email:** gabrielrocha.mm@gmail.com)  
 
 If you're interested in valuation, investment analysis or the energy sector, feel free to reach out.
